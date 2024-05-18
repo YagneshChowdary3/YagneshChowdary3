@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Yagnesh Chowdary
 - 👀 I’m interested in cyber security.
-- 🌱 I’m currently CHFI.
+- 🌱 I’m currently  learning CHFI.
 - 💞️ I’m looking to collaborate with any experts.
 - 📫 How to reach me --> mail - iamascientisttt@gmail.com
 
